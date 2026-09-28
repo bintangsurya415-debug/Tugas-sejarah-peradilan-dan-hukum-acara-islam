@@ -11,3 +11,4 @@ Peradilan islam pada masa islam turki utsmani
 - menjadikan footnote dan daftar pustaka dari karya-karya dosen hki
 - jangan sampai ada salah ketik
 - untuk submit jurnal cari yg tidak berbayar terlebih dahulu
+CARI JURNAL DULU YANG PERTAMA
